@@ -3,7 +3,7 @@
 
 My love for indie games inspired me to create pixel art.
 - 🌱 I’m currently learning Pixel art
-- 💞️ I’m looking to collaborate ony proyect of a Indie game
+- 💞️ I’m looking to collaborate own proyect of a Indie game
 - 📫 How to reach me : My discord : HYDRA#9083
 
 <!---
